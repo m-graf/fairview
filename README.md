@@ -54,7 +54,3 @@ Welcome to Austin.
 Welcome home.
 
 ---
-
-*"The best among people are those who bring benefit to others."* — Hadith of Prophet Muhammad (peace be upon him)
-
-2026-05-28T12:28:00-05:00
